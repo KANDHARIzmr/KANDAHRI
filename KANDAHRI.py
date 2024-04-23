@@ -1,4 +1,4 @@
-WRITING BY PROFESSOR KANGAR1 BOSS
+WRITING BY PROFESSOR KANDAHRI BOSS
 
 #---------------------[IMPORT]---------------------#
 #new userugrnt u can use this-----#
